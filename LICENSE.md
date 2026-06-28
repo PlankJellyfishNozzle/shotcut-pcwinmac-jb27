@@ -1,4 +1,4 @@
-# 
+# Open Source Shotcut effets pour Mac OS | Exclusif Shotcut effets pour PC Windows. Avec changement de tonalité et incrustations personnalisées — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
